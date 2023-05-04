@@ -15,11 +15,11 @@ The session is planned as free discussion session with some guiding questions:
 
 * Combined languages is a complex program that require coordination and collaboration. How do we want this program to be going forward in connection with the so-called "orphan languages"?
 * Study abroad is a requirement for all of our programs (including Combined Languages). What policies do we want to set for study abroad and combination of languages? 
-* How do we design a experience that allow students to do combined languages, get the combined language experience (with small langauge programs) and still be able to acquire a good level o proficiency? 
+* How do we design a experience that allows students to do combined languages, get the combined language experience (with small langauge programs) and still be able to acquire a good level of proficiency? 
 * What level of proficiency we want students in the combined languages major to graduate with from LLC?
 * Comparative Literature is one important compnent of our department. How do we envision this program going forward?
-* As an interdiscplinary major, Comp. Lit. requires coordination with diverse departments. What shoul we do regarding the coordination of the major?
-* German is a small program that don't have a lot of students in it. Do we want to continue offering German beyond the beginner levels? If so, how do you envision this program going forward?
+* As an interdiscplinary major, Comp. Lit. requires coordination with diverse departments. What should we do regarding the coordination of the major?
+* German is a small program that doesn't have a lot of students in it. Do we want to continue offering German beyond the beginner levels? If so, how do you envision this program going forward?
 * ASL is a language growing in popularity and interest among the studnets. Do we want to continue offering ASL as an option for the Combined Languages program even if we don't have a robust program?
 * ASL could be an entry-door to create a new track on disability studies from the language and cultural perspective. How do you seee a program like this being offered and developed here at Clark?
 * Study abroad is a central component to all of our majors. How do you think we should approach it going forward? Should we continue with a third-party model? Should we bring study abroad back to faculty control? Should we implement and develop a hybrid model? 
